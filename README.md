@@ -1,4 +1,4 @@
-![EternalGreed](https://64.media.tumblr.com/a2936c0b7a577bd521c25110f29cc356/778444e2856a09b6-bd/s2048x3072/b3a10387c6b18d4f5c0dee083f7512bc6afc898b.jpg)  
+ <img src=https://64.media.tumblr.com/a2936c0b7a577bd521c25110f29cc356/778444e2856a09b6-bd/s2048x3072/b3a10387c6b18d4f5c0dee083f7512bc6afc898b.jpg width=1024 height=1536>
 	<sup> cred @ homa_ea </sup>
 <p align="middle"><sub>❝ You want so badly to be pure again,  </sub>  
 <p align="middle"><sub>you call yourself a lamb,  </sub>  
